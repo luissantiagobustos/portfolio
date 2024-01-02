@@ -1,2 +1,2 @@
 # portfolio
-My personal portfolio :) - Luis Santiago
+I'm Luis Santiago and this is my personal portfolio :) 
